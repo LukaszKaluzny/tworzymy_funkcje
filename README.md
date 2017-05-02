@@ -1,0 +1,1 @@
+# tworzymy_funkcje
